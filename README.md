@@ -1,5 +1,5 @@
 
-![](https://media.tenor.com/X8854xxuQ_EAAAAd/destroy-code-mad.gif)
+![]([https://media.tenor.com/X8854xxuQ_EAAAAd/destroy-code-mad.gif](https://media.licdn.com/dms/image/C4D10AQFPADIeyGIu_w/image-shrink_800/0/1678367709497?e=1679335200&v=beta&t=rn17NtJs5ngDkBmNgr_-ect94VUOEL7raRafIjWJ1cw))
 
 # 💫 About Me:
 Programador con más de 4 años de experiencia
